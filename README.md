@@ -7,11 +7,12 @@
 
 * ✨📖 Learner
 
-* 🥳 Exploring new places
+* 🥳 Exploring new places & new technologies
+
+
 
 
 
 ## Reach me via 👇🏻
 
 pradeepmithna@gmail.com
-pradeepmithna@icloud.com
